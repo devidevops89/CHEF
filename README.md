@@ -1,2 +1,1 @@
-MY nam =e is khan 
-nisha pagal h 
+MY name is deepti ... 
